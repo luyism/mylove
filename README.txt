@@ -1,1 +1,1 @@
-预览效果:https://luyism.github.io/love/
+预览效果:https://luyism.github.io/mylove/
